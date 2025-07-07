@@ -16,7 +16,7 @@ Hey there! 👋**I'm Klassic Mak**👋, a digital architect on a quest to turn i
 
 ## **Contact Me**  
 📩 **Email:** [josiahababio56@gmail.com](mailto:josiahababio56@gmail.com)  
-🏠 Where to Find Me: Likely lost in lines of code or daydreaming about my next groundbreaking app. 🚀💻
+🏠 Where to Find Me: Likely lost in lines of code or daydreaming about my next groundbreaking system. 🚀💻
 
 
 ---
